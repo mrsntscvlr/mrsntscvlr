@@ -1,2 +1,5 @@
-
-
+-eu sou estudante
+-gosto de desenhar
+-eu gosto de jogo de ação
+-
+-meu filme preferido é rua do medo                                                                       
