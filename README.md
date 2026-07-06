@@ -3,4 +3,4 @@
 -💥 eu gosto de jogo de ação
 -⭐ eu gosto muito de steven universo 
 -😨 meu filme preferido é rua do medo          
-- ![](https://tenor.com/pt-BR/view/ruby-lane-fear-street-fear-street1994-bev03-girl-psycho-gif-22275180).
+- ![](https://tenor.com/pt-BR/view/ruby-lane-fear-street-fear-street1994-bev03-girl-psycho-gif-22275180)
