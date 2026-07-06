@@ -2,4 +2,5 @@
 -✏️ gosto de desenhar
 -💥 eu gosto de jogo de ação
 -⭐ eu gosto muito de steven universo 
--😨 meu filme preferido é rua do medo                                                                       
+-😨 meu filme preferido é rua do medo          
+- ![](https://tenor.com/pt-BR/view/fear-street-gif-22365931).
